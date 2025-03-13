@@ -1,4 +1,4 @@
-## 👋 Hi, I’m @Shamprasath3  
+## 👋 Hi, I’m Sham prasath Kannaiyan 
 
 - 👀 **Interested in:** Mechanical Engineering, Supply Chain Management, Autonomous Vehicles, Autonomous Systems, and Business Strategy  
 - 🌱 **Currently Learning:** Data Science, Machine Learning, Sales, and Business Development  
